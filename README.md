@@ -8,7 +8,7 @@
  
 ## Видеоинструкция
 ### [Kак распечатать выкройку 1](https://youtu.be/-pD-CA23ALA)
-### [Kак распечатать выкройку 2](https://youtu.be/-pD-CA23ALA)
+### [Kак распечатать выкройку 2](https://youtu.be/w7LxMWOIVJg)
  
  
 
