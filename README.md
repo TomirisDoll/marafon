@@ -1,7 +1,8 @@
 ### Выкройка тела и одежды куклы
  
- [ВЫКРОЙКА КУКЛЫ](https://yadi.sk/d/0OMxmv8JxOMUQA)
+ [ВЫКРОЙКА КУКЛЫ Яндекс](https://yadi.sk/d/0OMxmv8JxOMUQA)
  
+ [ВЫКРОЙКА КУКЛЫ Облако Mail.ru](https://cloud.mail.ru/public/2CHK/4GRXeyvLG)
 
 ### Урок 1 Создание тела куклы
 #### будет доступен после 3 октября
