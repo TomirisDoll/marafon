@@ -1,6 +1,6 @@
-## Выкройка тела и одежды куклы
+### Выкройка тела и одежды куклы
 
-## [Облако Mail.Ru](https://tomirisdoll.github.io/marafon/)
+ [Облако Mail.Ru](https://tomirisdoll.github.io/marafon/)
 
  [Yandex.Disk](https://tomirisdoll.github.io/marafon/)
  
