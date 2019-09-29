@@ -1,6 +1,3 @@
----
-title: "Записи Кукольного марафона"
----
 ### Выкройка тела и одежды куклы
 
  [Облако Mail.Ru](https://tomirisdoll.github.io/marafon/)
