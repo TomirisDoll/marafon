@@ -6,7 +6,7 @@
  
  [ВЫКРОЙКА КУКЛЫ Google диск](https://drive.google.com/file/d/1C8IMdlms3mbIGPbxlmFS5ULkajvtfETZ/view?usp=sharing)
  
- ##Видеоинструкция 
+ ## Видеоинструкция 
  ### [Kак распечатать выкройку 1](https://youtu.be/-pD-CA23ALA)
  ### [Kак распечатать выкройку 2](https://youtu.be/-pD-CA23ALA)
  
