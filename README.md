@@ -6,7 +6,7 @@
  
  [Google Диск](https://tomirisdoll.github.io/marafon/)
  
- [Dropbox](https://tomirisdoll.github.io/marafon
+ [Dropbox](https://tomirisdoll.github.io/marafon)
 
 
 ### Урок 1 Создание тела куклы
