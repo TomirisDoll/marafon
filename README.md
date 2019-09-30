@@ -7,6 +7,7 @@
 ### [ВЫКРОЙКА КУКЛЫ Google диск](https://drive.google.com/file/d/1C8IMdlms3mbIGPbxlmFS5ULkajvtfETZ/view?usp=sharing)
  
 ### *Пароль найдете в посте на голубом фоне*
+_____________________
  
 ### Видеоинструкция
 
