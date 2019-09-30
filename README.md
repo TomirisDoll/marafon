@@ -3,7 +3,7 @@
 
 ## Выкройка тела, одежды и обуви куклы 
  
-### 1. [ВЫКРОЙКА КУКЛЫ Яндекс](https://yadi.sk/d/0OMxmv8JxOMUQA)
+### 1. [ВЫКРОЙКА КУКЛЫ Яндекс] (https://yadi.sk/d/0OMxmv8JxOMUQA)
  
 ### 2. [ВЫКРОЙКА КУКЛЫ Облако Mail.ru](https://cloud.mail.ru/public/2CHK/4GRXeyvLG)
  
