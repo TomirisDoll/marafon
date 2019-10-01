@@ -3,11 +3,11 @@
 
 ## Выкройка тела, одежды и обуви куклы 
  
-### 1. [ВЫКРОЙКА КУКЛЫ Яндекс](https://yadi.sk/d/0OMxmv8JxOMUQA)
+### 1. [ВЫКРОЙКА КУКЛЫ Яндекс](https://yadi.sk/d/bYJ6DSDoRC22ww)
  
-### 2. [ВЫКРОЙКА КУКЛЫ Облако Mail.ru](https://cloud.mail.ru/public/2CHK/4GRXeyvLG)
+### 2. [ВЫКРОЙКА КУКЛЫ Облако Mail.ru](https://cloud.mail.ru/public/v7jM/4uYhrVd5p)
  
-### 3. [ВЫКРОЙКА КУКЛЫ Google диск](https://drive.google.com/file/d/1C8IMdlms3mbIGPbxlmFS5ULkajvtfETZ/view?usp=sharing)
+### 3. [ВЫКРОЙКА КУКЛЫ Google диск](https://drive.google.com/file/d/1JO_CCw0ELHRqXBIi-Zpppm2kYlO3DvxI/view?usp=sharing)
  
 >> Пароль найдете в посте на голубом фоне 
  
