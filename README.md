@@ -1,3 +1,6 @@
+### [Предварительный эскиз лица Google диск](https://drive.google.com/file/d/145etVwajjhe1r3A3hk3vmA78kennh-4-/view?usp=drivesdk)
+
+
 ### Урок 1 Создание тела куклы
 
 ### 1. [Шьем тело 1 и 2 эфир Яндекс](https://yadi.sk/d/U-ewLY_aF48VqA)
