@@ -1,7 +1,25 @@
+
+## Рисуем эскизы на бумаге
+
 ### [Предварительный эскиз лица Google диск](https://drive.google.com/file/d/145etVwajjhe1r3A3hk3vmA78kennh-4-/view?usp=drivesdk)
 
+### 1. [Рисуем лицо на бумаге эфир Яндекс](https://yadi.sk/d/mlPWeFFqneWYyw)
+ 
+### 2. [Рисуем лицо на бумаге эфир Облако Mail.ru](https://cloud.mail.ru/public/5vVN/49aT6RKrU)
+ 
+### 3. [Рисуем лицо на бумаге Google диск](https://drive.google.com/file/d/1zeDMVaZxvJ47P_b6QARvdAhuQPJZyk-u/view?usp=sharing)
 
-### Урок 1 Создание тела куклы
+
+## Вяжем кофточку кукле спицами
+
+### 1. [Вяжем кофточку эфир Яндекс](https://yadi.sk/d/eEIlQkHPhgkBMg)
+ 
+### 2. [Вяжем кофточку эфир Облако Mail.ru](https://cloud.mail.ru/public/5aqc/4M7K617Fp)
+ 
+### 3. [Вяжем кофточку Google диск](https://drive.google.com/file/d/1Gku4h8WGIZuEWdDVnazBQcdR1tx1QPfk/view?usp=sharing)
+
+
+## Урок 1 Создание тела куклы
 
 ### 1. [Шьем тело 1 и 2 эфир Яндекс](https://yadi.sk/d/U-ewLY_aF48VqA)
  
