@@ -2,7 +2,7 @@
 ## Рисуем эскизы на бумаге
 
 ### [Предварительный эскиз лица Google диск](https://drive.google.com/file/d/145etVwajjhe1r3A3hk3vmA78kennh-4-/view?usp=drivesdk)
-
+### [Лицо с размерами Google диск](https://drive.google.com/file/d/1Qd9ElYSoPcx_WDzrM0dD7YZD1Fb8qxl2/view?usp=sharing)
 
 ### 1. [Рисуем лицо на бумаге Яндекс](https://yadi.sk/d/mlPWeFFqneWYyw)
  
