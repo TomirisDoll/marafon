@@ -10,6 +10,8 @@
  
 ### 3. [Рисуем лицо на бумаге Google диск](https://drive.google.com/file/d/1zeDMVaZxvJ47P_b6QARvdAhuQPJZyk-u/view?usp=sharing)
 
+### [Тренируемся рисовать лицо куклы на бумаге YouTube](https://youtu.be/PY8D7pzAEyM)
+
 
 ## Вяжем кофточку кукле спицами
 
