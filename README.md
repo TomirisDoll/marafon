@@ -1,3 +1,7 @@
+## Урок 3 Обувь из кожи
+
+### [Обувь сандалики](https://drive.google.com/file/d/1yawRqWA7fkSxXWY4WnjJ2xxDRA5XL5UL/view?usp=sharing)
+ 
 
 ## Рисуем эскизы на бумаге
 
@@ -13,7 +17,7 @@
 ### [Тренируемся рисовать лицо куклы на бумаге YouTube](https://youtu.be/PY8D7pzAEyM)
 
 
-## Вяжем кофточку кукле спицами
+## Урок 2 Вяжем кофточку кукле спицами
 
 ### 1. [Вяжем кофточку Яндекс](https://yadi.sk/d/eEIlQkHPhgkBMg)
  
