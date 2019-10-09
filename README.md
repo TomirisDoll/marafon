@@ -4,7 +4,7 @@
 НОВОЕ
 ## Урок 3 Обувь из кожи
 
-### [Обувь сандалики](https://drive.google.com/file/d/1yawRqWA7fkSxXWY4WnjJ2xxDRA5XL5UL/view?usp=sharing)
+### [Обувь сандалики](https://drive.google.com/file/d/1LhUfyuoBvxyRL9IwYctJkWZ56-UVpKlK/view?usp=sharing)
  
 
 ## Рисуем эскизы на бумаге
