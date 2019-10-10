@@ -1,24 +1,24 @@
-НОВОЕ
+## Урок 4 Роспись лица куклы 
+
+### [Роспись лица куклы акрил+пастель](https://drive.google.com/file/d/1cGzGNFmQ2YfMS2qkBK0iqf7x_EaJapSr/view?usp=sharing)
+
 ### [Разметка лица на набитой голове](https://drive.google.com/file/d/1ruwY_KWMtjAmXVfy0O4r_ZyVoONGpBfd/view?usp=sharing)
 
-НОВОЕ
-## Урок 3 Обувь из кожи
-
-### [Обувь сандалики](https://drive.google.com/file/d/1LhUfyuoBvxyRL9IwYctJkWZ56-UVpKlK/view?usp=sharing)
- 
-
-## Рисуем эскизы на бумаге
+### Рисуем эскизы на бумаге
 
 ### [Предварительный эскиз лица Google диск](https://drive.google.com/file/d/145etVwajjhe1r3A3hk3vmA78kennh-4-/view?usp=drivesdk)
 ### [Лицо с размерами Google диск](https://drive.google.com/file/d/1Qd9ElYSoPcx_WDzrM0dD7YZD1Fb8qxl2/view?usp=sharing)
 
 ### 1. [Рисуем лицо на бумаге Яндекс](https://yadi.sk/d/mlPWeFFqneWYyw)
- 
 ### 2. [Рисуем лицо на бумаге Облако Mail.ru](https://cloud.mail.ru/public/5vVN/49aT6RKrU)
- 
 ### 3. [Рисуем лицо на бумаге Google диск](https://drive.google.com/file/d/1zeDMVaZxvJ47P_b6QARvdAhuQPJZyk-u/view?usp=sharing)
 
 ### [Тренируемся рисовать лицо куклы на бумаге YouTube](https://youtu.be/PY8D7pzAEyM)
+
+
+## Урок 3 Обувь из кожи
+
+### [Обувь сандалики](https://drive.google.com/file/d/1LhUfyuoBvxyRL9IwYctJkWZ56-UVpKlK/view?usp=sharing)
 
 
 ## Урок 2 Вяжем кофточку кукле спицами
@@ -40,7 +40,7 @@
 
 
 
-## Выкройка тела, одежды и обуви куклы 
+## Выкройка тела, одежды и обуви куклы автор Светлана Саченко 
 перезалила ссылки, пробуйте повторно
  
 ### 1. [ВЫКРОЙКА КУКЛЫ Яндекс](https://yadi.sk/d/bYJ6DSDoRC22ww)
