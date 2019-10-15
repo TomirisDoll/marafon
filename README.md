@@ -9,7 +9,7 @@
 
 ## Урок 5 Шьем одежду
 ### [Одежда 2 эфира 13 октября](https://drive.google.com/file/d/1BVRVcUhwy-4isfaswEZpo8QEoq3NrSyZ/view?usp=sharing)
-
+### [Одежда 2 эфира 14 октября](https://drive.google.com/file/d/1zJYgk0BCnZrpGXT0Hm8x3jQrD-KtZMAK/view?usp=sharing)
 
 ## Урок 4 Роспись лица куклы 
 
