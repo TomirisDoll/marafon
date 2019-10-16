@@ -12,7 +12,7 @@
 ### [Одежда 2 эфира 14 октября](https://drive.google.com/file/d/1zJYgk0BCnZrpGXT0Hm8x3jQrD-KtZMAK/view?usp=sharing)
 
 ## Урок 5 Волосы кукле
-### [Волосы эфтр 1 и2 ](https://drive.google.com/file/d/13uJZ32gWj9WjQJBnfekpuAioCwZPZJwP/view?usp=sharing)
+### [Волосы эфир 1 и 2 ](https://drive.google.com/file/d/13uJZ32gWj9WjQJBnfekpuAioCwZPZJwP/view?usp=sharing)
 
 ## Урок 4 Роспись лица куклы 
 
