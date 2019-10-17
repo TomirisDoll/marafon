@@ -1,5 +1,4 @@
 ### РАСПИСАНИЕ
-#### Вышивка Марина Бляхова 17 октября в обед по МСК
 #### Разбор лица Раисова Альфия 18 октября в 15.00 МСК
 #### Тонировка тела в аккаунте @tomiris_doll 19 октября в 15.00 МСК
 
@@ -10,6 +9,7 @@
 ## Урок 6 Шьем одежду
 ### [Одежда 2 эфира 13 октября](https://drive.google.com/file/d/1BVRVcUhwy-4isfaswEZpo8QEoq3NrSyZ/view?usp=sharing)
 ### [Одежда 2 эфира 14 октября](https://drive.google.com/file/d/1zJYgk0BCnZrpGXT0Hm8x3jQrD-KtZMAK/view?usp=sharing)
+### [Сарафан 2 эфира 16 октября](https://drive.google.com/file/d/1Zbdu_bYxqgIyvpH1e-Bxt9TGLDOrt4WI/view?usp=sharing)
 
 ## Урок 5 Волосы кукле
 ### [Волосы эфир 1 и 2 ](https://drive.google.com/file/d/13uJZ32gWj9WjQJBnfekpuAioCwZPZJwP/view?usp=sharing)
