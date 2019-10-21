@@ -2,7 +2,7 @@
 #### Выбираем 5 победителей 25-29 октября
 #### Объявление победителей 30 октября!
 
-### [Разбор лица Раисова Альфия] (https://drive.google.com/file/d/1WXPqWUi_0AR7jr-FtXMLpYvtZd2ihq5M/view?usp=sharing)
+### [Разбор лица Раисова Альфия](https://drive.google.com/file/d/1WXPqWUi_0AR7jr-FtXMLpYvtZd2ihq5M/view?usp=sharing)
 #### Тонировка тела в аккаунте @tomiris_doll сохранено до 15.00 20окт (запись доступна в группе в контакте)
 
 ## Урок 6 Шьем одежду
