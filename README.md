@@ -3,7 +3,7 @@
 #### Объявление победителей 30 октября!
 
 ### [Разбор лица Раисова Альфия](https://drive.google.com/file/d/1WXPqWUi_0AR7jr-FtXMLpYvtZd2ihq5M/view?usp=sharing)
-#### Тонировка тела в аккаунте @tomiris_doll сохранено до 15.00 20окт (запись доступна в группе в контакте)
+#### Тонировка тела в аккаунте @tomiris_doll сохранено до 15.00 20окт (запись будет доступна в группе в контакте после 1 ноября)
 
 ## Урок 6 Шьем одежду
 ### [Одежда 2 эфира 13 октября](https://drive.google.com/file/d/1BVRVcUhwy-4isfaswEZpo8QEoq3NrSyZ/view?usp=sharing)
